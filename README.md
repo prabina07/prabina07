@@ -72,5 +72,5 @@ address unhealthy and expensive food options for students.
 
 ## 📫 Connect With Me
 
-- LinkedIn: [LinkedIn](YOUR_LINKEDIN_LINK)
+- LinkedIn: www.linkedin.com/in/prabinadhakal
 - Email: dklprabina07@gmail.com
